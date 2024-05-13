@@ -1,1 +1,1 @@
-```I'm Minh Tri xau xa```
+```I'm Minh Tri```
